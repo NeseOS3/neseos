@@ -9,10 +9,12 @@ Because, we updating software to keep secure.
 
 Don't believe any criticism videos. Instead, believe only the official source by NeseOS via any account (not including fake accounts).
 
-The NeseOS associated account: 
+Here's the associated account by NeseOS: 
 https://youtube.com/@NeseOS2
 https://x.com/neseosnews 
 https://dsc.gg/nsos
+https://forum.nese.kozow.com
+https://go.nese.free.nf/register (includes any short link by NeseOS)
 
 Don't believe any fake accounts!
 
